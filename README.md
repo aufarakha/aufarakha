@@ -23,4 +23,4 @@
 ## **📫 Contacts**
 <img align="left" width="100" src="./img/ES_handing_book.png" />
 
-**Please Contact me on Telegram for a quick response:** [aufarakha](https://t.me/alter_ego_ES)
+**Please Contact me on Telegram for a quick response:** [ES](https://t.me/alter_ego_ES)
